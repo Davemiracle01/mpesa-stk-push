@@ -39,7 +39,7 @@ Have questions, suggestions, or need help?
 
 * [💬 Chat on WhatsApp (254769279076)](https://wa.me/254769279076)
 * [💬 Chat on WhatsApp (254799073744)](https://wa.me/254799073744)
-
+* [💕 follow our Whatsapp channel (https://whatsapp.com/channel/0029VavpWUvGk1Fkbzz0vz0v)](https://whatsapp.com/channel/0029VavpWUvGk1Fkbzz0vz0v)
 ---
 
 ## 🔥 Let's build cool stuff together!
